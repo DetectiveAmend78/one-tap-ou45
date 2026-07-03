@@ -1,4 +1,4 @@
-# 
+# updated Script for one tap is the best one tap Script, featuring unlimited stamina and invisibility. Safe and powerful for all your needs.
 
 
 
